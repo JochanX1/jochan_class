@@ -1,1 +1,0 @@
-# jochan_class
